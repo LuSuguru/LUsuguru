@@ -1,4 +1,4 @@
-### 有事🤔可以微信，👉:lj429150413，备注
+### 有事🤔可以微信，👉:lj429150413，备注 github
 
 <!--
 **LuSuguru/LUsuguru** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
